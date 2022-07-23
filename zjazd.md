@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Zjazd
+title: III Zjazd
 headline: III Zjazd Absolwentów
 ---
 
