@@ -8,9 +8,9 @@ W imieniu Stowarzyszenia “Dzieci Funduszu” chcieliśmy serdecznie zaprosić 
 
 Zachęcamy do poczynienia następujących kroków (najlepiej wszystkich trzech!):
 
-* Zarejestrowania się na wydarzenie poprzez formularz - https://forms.gle/nfqutzemS9QCCt686.
+* Zarejestrowania się na wydarzenie poprzez [formularz](https://forms.gle/nfqutzemS9QCCt686).
 Liczba miejsc jest ograniczona i może okazać się że kolejność zapisu będzie decydowała o możliwości wzięcia udziału.
-* Wsparcia naszej zbiórki - https://zbieram.pl/x89fvvd7.
+* Wsparcia naszej [zbiórki](https://zbieram.pl/x89fvvd7).
 Udział w zjeździe będzie bezpłatny. Tym niemniej, żeby zjazd zorganizować potrzebujemy funduszy i dlatego bardzo prosimy o wsparcie i hojność. Więcej informacji w opisie zbiórki.
 * Przekazanie informacji znajomym. 
 Naszymi kanałami docieramy do małej części, spośród kiklu tysięcy absolwentów. Bez Waszego wsparcia nie dotrzemy do większego grona. Zaproszenie znajomych, także tych dawno niewidzianych, to najlepszy sposób żeby upewnić się, że spotkacie ich na zjeździe!
