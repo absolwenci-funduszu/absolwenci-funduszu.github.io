@@ -13,4 +13,4 @@ Więcej o idei przyświecającej naszej inicjatywie można przeczytać w [liści
 
 ## Nadchodzące wydarzenia
 
-18. grudnia 2022 odbędzie się III Zjazdu Absolwentów i Przyjaciół Funduszu. Serdecznie zapraszamy, więcej informacji na podstronie [Zjazdu](http://absolwenci-funduszu.org/zjazd/).
+Już 18. grudnia 2022 odbędzie się III Zjazdu Absolwentów i Przyjaciół Funduszu. Serdecznie zapraszamy, więcej informacji na podstronie [Zjazdu](http://absolwenci-funduszu.org/zjazd/).
