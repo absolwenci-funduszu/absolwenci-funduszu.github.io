@@ -13,4 +13,4 @@ Więcej o idei przyświecającej naszej inicjatywie można przeczytać w [liści
 
 ## Nadchodzące wydarzenia
 
-W grudniu 2022 planujemy organizację III Zjazdu Absolwentów. Więcej szczegółów wkrótce. Jeśli chcesz pomóc w organizacji tego wydarzenia, wypełnij [formularz](https://forms.gle/iuYcLSRyJH7brYna8).
+18. grudnia 2022 odbędzie się III Zjazdu Absolwentów i Przyjaciół Funduszu. Serdecznie zapraszamy, więcej informacji na podstronie [Zjazdu](http://absolwenci-funduszu.org/zjazd/).
